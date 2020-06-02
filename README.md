@@ -1,0 +1,1 @@
+Not just another project. I am sure that The Odin Project will help me achieve the skills to be admitted as a Microverse student.
